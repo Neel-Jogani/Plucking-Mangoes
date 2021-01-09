@@ -1,2 +1,2 @@
-# Plucking-Mangoes
-Pluck off the mangoes by throwing stones
+# Plucking Mangoes
+it is the season of summer
